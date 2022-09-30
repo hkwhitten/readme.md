@@ -10,4 +10,4 @@
 # Junior Achievement Volunteer at local High School.
 # You can reach me at hkwhitten@gmail.com
 # Last Meal: Steak and potatoes, glass of wine (or two), a good salad, ranch dressing, good bread.
-# Well, that's about it. I've had my last meal....
+# Well, that's about it. I've had my last meal.
